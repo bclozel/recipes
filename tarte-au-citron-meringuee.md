@@ -39,3 +39,5 @@ Une fois bien montés, on incorpore du sucre glace selon son goût; quelques cui
 11. Déposer la préparation de meringue sur le gâteau après les 30 minutes de cuisson et faire des becs d'oiseaux avec un fouet.
 
 12. Mettre au four en position grill à 210° pendant 1-2 minutes pour une meringue légèrement grillée mais encore souple. Sinon baisser la température du four et laisser plus longtemps pour une meringue plus ferme.
+
+13. Servir froid.
